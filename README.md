@@ -1,0 +1,1 @@
+# swisstronik_mint_perc_20_token
